@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jimmy Zhu.
+- 👀 I’m interested in jogging and badminton.
+- 🌱 I’m currently learning How to develop project management kit with Access.
+- 💞️ I’m looking to collaborate on packaging design and development, retail and food contact packaging.
+- 📫 You can reach me via my Email.
